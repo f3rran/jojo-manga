@@ -21,7 +21,7 @@ Avanzando hasta 1938, este nuevo arco narra las historias del nuevo Jojo, tambi�
 
 | Tomo  | Enlace  |
 |---|---|
-| Jojo's Bizarre Adventure Parte 1: Battle Tendency 1: 4 (Español) Tapa blanda   |   | 
+| Jojo's Bizarre Adventure Parte 1: Battle Tendency 1: 4 (Español) Tapa blanda   | https://amzn.to/3bOre9k  | 
 | Jojo's Bizarre Adventure Parte 1: Battle Tendency 2: 5 (Español) Tapa blanda   | https://amzn.to/3bKA0oJ  | 
 | Jojo's Bizarre Adventure Parte 1: Battle Tendency 3: 6 (Español) Tapa blanda   | https://amzn.to/3qvM7dJ  | 
 | Jojo's Bizarre Adventure Parte 2: Battle Tendency 4: 7 (Español) Tapa blanda   | https://amzn.to/3srBhat  | 
