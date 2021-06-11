@@ -97,3 +97,8 @@ La Parte VI es la última parte situada en la primera línea de tiempo de JoJo's
 |---|---|
 | Jojo Bizzarre Adventure Parte 6: Stone ocean 01: 41 (Español) Tapa blanda   | https://amzn.to/2N2wRq2  | 
 | Jojo's Bizzarre Adventure: 42 (Español) Tapa blanda   | https://amzn.to/3oVqXVS  | 
+| Jojo Bizzarre Adventure Parte 6: Stone ocean 03: 43   | https://amzn.to/3xjdmLX  | 
+| Jojo Bizzarre Adventure Parte 6: Stone ocean 04: 44   | https://amzn.to/3wf6CP0  | 
+| Jojo's Bizzarre Adventure Parte 6: Stone ocean 05: 45   | https://amzn.to/3pPxaUz  | 
+| Jojo's Bizzarre Adventure Parte 6: Stone ocean 06: 46   | https://amzn.to/3pG5cdY  | 
+| Jojo's Bizzarre Adventure Parte 6: Stone ocean 07: 47   | https://amzn.to/3pGv60Y  | 
